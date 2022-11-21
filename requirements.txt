@@ -1,6 +1,0 @@
-python
-pystyle
-discord.py
-discord
-aiohttp
-
