@@ -6,4 +6,6 @@ LOL
 
 really fast hooly 
 
+nuke your friends hahaha
+
 ![Nuker](https://user-images.githubusercontent.com/81118920/203185531-bbb9f481-0bc2-4178-8843-a05861e7f9c9.png)
